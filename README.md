@@ -1,0 +1,2 @@
+# guru
+sekolah
